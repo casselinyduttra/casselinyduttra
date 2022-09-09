@@ -1,5 +1,5 @@
 
-        ✨     ✨  ✨     ✨        ✨     ✨  ✨     ✨        ✨     ✨  ✨     ✨        ✨     ✨  ✨     ✨    ✨       
+        ✨     ✨  
 ## Oii sou a Casseliny Dutra 👋
 
 * 📒 Atualmente estou estudando Análise de Sistemas. 
