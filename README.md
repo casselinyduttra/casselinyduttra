@@ -2,9 +2,9 @@
         ✨     ✨  
 ## Oii sou a Casseliny Dutra 👋
 
-* 📒 Atualmente estou estudando Análise de Sistemas. 
+* 📒 Atualmente entrando no mundo da programação.
 
-* 🎯 Uma desenvolvedora em processo. 
+* 🎯 
 
 * 💙🖥️ Amando o mundo da Programação. 
 
