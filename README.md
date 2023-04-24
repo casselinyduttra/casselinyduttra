@@ -4,7 +4,7 @@
 
 * 📒 Atualmente entrando no mundo da programação.
 
-* 🎯 
+* 🎯 ADS | Programming Student | QA Tester | Java
 
 * 💙🖥️ Amando o mundo da Programação. 
 
